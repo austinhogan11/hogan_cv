@@ -1,1 +1,0 @@
-# hogan_cv
